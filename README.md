@@ -1,4 +1,4 @@
-- Hiii i'm Chocomagpie or Choco :) Or mags.
+- Hiii i'm Chocomagpie! Choco for short. :)
 - I love video games and anime!!
 - Cats and frogs are my favorite animals.
 - You can usually find me hanging around the Overwatch/League area on the Ponytown 18+ server!
